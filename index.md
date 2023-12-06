@@ -8,3 +8,6 @@
 2. Video games
 
 3. Reading 
+
+for more info on ra page [click here](https://uwaterloo.ca/psychology/current-undergraduate-students/experience-opportunities/research-experience/advertisements-research-assistant-positions-psychology)
+ 
